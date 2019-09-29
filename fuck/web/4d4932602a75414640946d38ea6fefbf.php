@@ -1,1 +1,1 @@
-Logged in! CFI{g0tta_kn0w_y0ur_J4v4Scr1pt}
+Logged in! Flag: {v4n_d4m_tu0n9_4_v1_4i}
